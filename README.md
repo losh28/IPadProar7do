@@ -1,1 +1,0 @@
-# IPadProar7do
